@@ -1,0 +1,1 @@
+# Componente-de-Tarjeta-de-Vista-Previa-del-Producto
